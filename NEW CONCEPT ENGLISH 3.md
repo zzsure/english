@@ -1,0 +1,12 @@
+# Lession 16 Mary had a little lamb
+- possessions：财产；所有物
+- field：领域；牧场
+- rashly：轻率地；鲁莽地
+- accuse：指控
+- astonished：吃惊的
+- dye：染
+- It would not prove difficult，是不难做到的
+- accuse sb. of (doing) sth. 指责、指控某人做某事
+- he had better return it，他最好把羊羔还出来。had better用来表达一种建议，比should和ought to更强烈，带有威胁、告诫或催促的意思
+- denied taking it... deny后面可接动名词做宾语，也可接宾语从句
+- apologize to sb. for (doing) sth. 是”因（做）某事向某人道歉“
